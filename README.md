@@ -1,1 +1,1 @@
-# ussr-against-russians
+*
